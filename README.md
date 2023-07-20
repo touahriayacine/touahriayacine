@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Mohamed Yacine Touahria Miliani
-- 🎓 I’m currently second cycle student at ESI Algeries
+- 🎓 I’m currently final year student at ESI Algeries
 - 📫 You can reach me on [Linkedin](https://www.linkedin.com/in/mohamed-yacine-touahria-miliani-846560243/)
 
 <!---
